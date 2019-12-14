@@ -1,1 +1,1 @@
-# sophiagusak.github.io
+# sofiagusak.github.io
